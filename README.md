@@ -1,4 +1,4 @@
-# MMohammad Hamid | Microsoft 365 Support Engineer
+# Mohammad Hamid | Microsoft 365 Support Engineer
 
 Microsoft 365 Support Engineer specializing in:
 
